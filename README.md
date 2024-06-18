@@ -1,3 +1,4 @@
+<img width="1440" alt="Screenshot 2024-06-18 at 11 11 47 AM" src="https://github.com/snehaw01/resume_reboot/assets/154721226/ecfcf965-8fde-4748-b3ea-7cbea27d48f9">
 
 # **Resume Reboot: Your ATS Optimization Expert**
 
